@@ -3,7 +3,7 @@
 🖤Aromantic<br/>
 🏳️‍⚧️Trans Girl<br/>
 📋Currently doing my school gradiuation<br/>
-You can find out more about me [On my website](https://kuninaru.com)
+You can find out more about me [on my website](https://kuninaru.com)
 
 
 ## 🌐 Socials:
