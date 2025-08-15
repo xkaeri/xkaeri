@@ -1,6 +1,6 @@
-## Hi, I'm Kari
+## Hi, I'm Yuru
 
-🖤Aromantic<br/>
+🖤Bisexual<br/>
 🏳️‍⚧️Trans Girl<br/>
 📋Currently doing my school gradiuation<br/>
 You can find out more about me [on my website](https://kuninaru.com)
